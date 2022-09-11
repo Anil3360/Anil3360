@@ -1,4 +1,4 @@
---Im Anil3360
---Right now im learning about game modding
---Decent fnf coder and charter and kinda good musician
---Discord - Anil#9758
+Im Anyl
+Right now im learning about game modding
+Decent fnf coder, good charter and a cool musician
+Discord - Anyl#2937
